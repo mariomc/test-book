@@ -38,3 +38,4 @@ description: peixe arroz pescada pota
 13. fechar novamente o copo e **modo vapor** durante sensivelmente **5 min** \(a pescada vai misturar-se ao arroz\)
 14. servir!
 
+_cenas e coisas_
